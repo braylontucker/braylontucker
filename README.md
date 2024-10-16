@@ -1,0 +1,6 @@
+- Hi, I’m @braylontucker
+- I’m interested in web development, application development, penetration testing, and computers.
+- I’m currently learning web development
+- I’m looking to collaborate on web dev, app dev
+- How to reach me IG @braylontucker_
+- Pronouns: he/him
